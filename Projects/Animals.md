@@ -57,3 +57,9 @@ Girl, put your records on.
 ![Sleepy sloths](https://www.pbh2.com/wordpress/wp-content/uploads/2012/10/funniest-animal-gifs-sloth-chilling.gif)
 
 A big ol' quarantine mood
+
+## Dogs
+
+! [Dog burrito] (https://media.giphy.com/media/101kC6OJncUhi0/giphy.gif)
+
+Did anyone say "burrito"?
